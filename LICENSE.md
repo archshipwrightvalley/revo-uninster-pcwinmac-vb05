@@ -1,4 +1,4 @@
-# 
+# Élite Revo Uninstaller preajustes para Mac OS | Último Revo Uninstaller preajustes para PC Windows. Con soporte de teclas rápidas y sincronización de archivos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
